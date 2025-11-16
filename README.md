@@ -1,0 +1,1 @@
+# ParametryZorzowe1
